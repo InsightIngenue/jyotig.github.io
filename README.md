@@ -1,1 +1,9 @@
-# jyotig.github.io
+# Consulting Data Analyst
+
+### Education
+certificates
+
+
+Work Experience
+
+Data Analyst
