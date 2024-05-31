@@ -74,6 +74,6 @@ Nominated for **best thesis award** - Léopold Escande 2016
 
 ### LANGUAGES
 
-English \*\*\*\*\*  
-French \*\*\*  
-Hindi \*\*\*\*\*
+English ⭐⭐⭐⭐⭐
+French ⭐⭐⭐
+Hindi ⭐⭐⭐⭐⭐ 
